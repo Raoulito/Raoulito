@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Raoulito !
-- Now vibecoding various stuff.
+- Now (vibe)coding various stuff.
